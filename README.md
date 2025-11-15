@@ -4,5 +4,5 @@ A curated collection of research papers I have recently read, summarized, and or
 
 If you'd like to read, comment, or discuss any of these papers together, feel free to reach out to me via:
 
-- [LinkedIn](https://www.linkedin.com/in/your-linkedin/)  
-- [Email](mailto:your.email@example.com)
+- [LinkedIn] https://www.linkedin.com/in/umutarpayy/  
+- [Email](mailto:umutozturkarpay99@gmail.coöm)
